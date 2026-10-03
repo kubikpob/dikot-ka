@@ -1,1 +1,0 @@
-# dikot-ka
